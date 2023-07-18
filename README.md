@@ -9,7 +9,7 @@
 - 💻 I'm currently looking for a job
 - ⚡ Fun fact I'm always wearing earphones, I just can't stop listening to music
 - 📩 Contact me 
-- Linkedin: https://www.linkedin.com/in/santiago-carrizo-910238244/
+- Linkedin: www.linkedin.com/in/santiago-carrizo-910238244
 - Email: santiagocarrizo53@gmail.com
 
 <div align="left">
